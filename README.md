@@ -1,2 +1,3 @@
 # hello-world
 Vicktoria Intelighencji Polskiej
+Vicktory Intelighence of Poland ,Ja  Archengel Daniel Endorfinek 2  Syn Boga i Ducha Świętego,Pilot Szybowcowy, Fizjoterapeuta  ŚmiechoTerapii :D))  ^(*:*)^  ,Gastronom...
